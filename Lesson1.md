@@ -17,8 +17,14 @@ permalink: /Lesson1.html
 当我们成为“基督徒" ，我们就成为基督的朋友，主的门徒，我们的身体成为圣灵的殿，我们的生命从此改变。我们当为自己拥有“基督徒"的身分而欢欣、自豪。
   
 2. 作基督徒的含义
-+ 基督降世救人的目的: [约10.10](https://www.biblegateway.com/passage/?search=约10.10&version=CUVMPS)
-+ 作基督徒的含义: [加2.20](https://www.biblegateway.com/passage/?search=加2.20&version=CUVMPS)
++ 基督降世救人的目的: [约10.10](https://www.biblegateway.com/passage/?search=约10.10&version=CUVMPS)　　
+　从这里我们可以看出主耶稣对我们的心意：  
+　　一、要叫我们得生命;相信耶稣，以祂为救主。  
+　　二、要叫我们得更丰盛的生命;倚靠耶稣，以祂为生命的主。
+
++ 作基督徒的含义:  
+如此看来，作“基督徒”是我与主进行生命的交換、交流和交托这也是使徒保罗的亲身经历。他在往大马士革途中见到主后，成为一个新人，不再按自己旧有的理想、喜好来决定自己的前途人生，而是把自己完全奉献给主，让主大大地差遣、使用。我们也应把我们的生命完全交交托给主耶穌，让祂带领我们的一生。  
+[加2.20](https://www.biblegateway.com/passage/?search=加2.20&version=CUVMPS)
 
 3. 基督徒的10种身份
 + 蒙神呼召，从世界中分别出来的人: [约17.16-17, 15.19](https://www.biblegateway.com/passage/?search=约17.16-17,15.19&version=CUVMPS)
