@@ -4,7 +4,7 @@ permalink: /Lesson3.html
 # 新生活与祷告
 
 背诵经文：
-+ [腓立比书4:6,7](https://www.biblegateway.com/passage/?search=腓立比书4:6,7&version=CUVMPS)
++ [腓立比书4:6,7](https://www.biblegateway.com/passage/?search=腓立比书4:6-7&version=CUVMPS)
 + [约翰福音15:7](https://www.biblegateway.com/passage/?search=约翰福音15:7&version=CUVMPS)
 
 祷告是信徒与慈爱神的交谈，也是与神单独的相交。祷告又是属灵的呼吸，我们借着祷告，可以向神认罪，又可以从神那里得到新的能力，过个得胜的基督徒生活。
