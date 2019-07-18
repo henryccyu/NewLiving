@@ -5,7 +5,7 @@ permalink: /Lesson2.html
 
 背诵经文:
 + [约书亚记1:8](https://www.biblegateway.com/passage/?search=约书亚记1:8&version=CUVMPS)
-+ [提摩太后书3:16,17](https://www.biblegateway.com/passage/?search=提摩太后书3:16,17&version=CUVMPS)
++ [提摩太后书3:16,17](https://www.biblegateway.com/passage/?search=提摩太后书3:16-17&version=CUVMPS)
 
 《圣经》是神启示给人类的话语。40多位不同身分的作者，同受一位圣灵的感动，从公元前1430年到公元90年左右，历经1500多年编写完成。
 
