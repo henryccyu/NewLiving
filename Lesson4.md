@@ -20,7 +20,9 @@ permalink: /Lesson4.html
 (2) 主耶稣在繁忙中仍重视什么？  
 "耶稣却退到旷野去▁▁▁▁。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
 “散了众人以后，祂就独自上山去▁▁▁▁。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
-我每天为哪些事情而忙碌？请按顺序写出来。
+
+我每天为哪些事情而忙碌？请按顺序写出来。  
+
 2．大卫的模范  
 “求你使我▁▁▁▁得听你慈爱之言，因我倚靠你;求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
 “耶和华啊，▁▁▁▁你必听我的声音；▁▁▁▁我必向你陈明我的心意，并要警醒。” ([诗53](https://www.biblegateway.com/passage/?search=诗53&version=CUVMPS))  
@@ -43,7 +45,7 @@ permalink: /Lesson4.html
 1．时间和场所  
 (1) 时间：要选一天中能够安静的时间，最好是选早晨或晚间。再则，无论白昼黑夜，只要选自己独处的安静时间即可。  
 (2) 场所：找一个安静并且能够一人独处的地方。若没有适当的场所，则努力消除杂念，集中精神。  
-2．准备物：(1)《圣经》(2)赞美诗(3)笔记本、笔  
+2．准备物：(1)《圣经》　(2)赞美诗　(3)笔记本、笔  
 3．预备：让自己怀有清静而爱慕神的心。
 
 四、灵修的方法  
