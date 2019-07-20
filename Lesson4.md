@@ -18,26 +18,26 @@ permalink: /Lesson4.html
 1. 主耶稣的榜样  
 (1)一天当中，主耶稣为哪一些事情而忙碌？([太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
 (2)主耶稣在繁忙中仍重视什么？  
-"耶稣却退到旷野去﹍﹍﹍﹍。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
-“散了众人以后，祂就独自上山去﹍﹍﹍﹍。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
+"耶稣却退到旷野去▁▁▁▁。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
+“散了众人以后，祂就独自上山去▁▁▁▁。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
 我每天为哪些事情而忙碌？请按顺序写出来。
 2. 大卫的模范  
-“求你使我﹍﹍﹍﹍得听你慈爱之言，因我倚靠你;求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
-“耶和华啊，﹍﹍﹍﹍你必听我的声音;﹍﹍﹍﹍我必向你陈明我的心意，并要警醒。” ([诗53](https://www.biblegateway.com/passage/?search=诗53&version=CUVMPS))  
+“求你使我▁▁▁▁得听你慈爱之言，因我倚靠你;求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
+“耶和华啊，▁▁▁▁你必听我的声音；▁▁▁▁我必向你陈明我的心意，并要警醒。” ([诗53](https://www.biblegateway.com/passage/?search=诗53&version=CUVMPS))  
 大卫能够成为合神心意的人，并被神大大使用，成就了神的旨意，其重要的原因之一就是他与神保持着很深的相交。  
 大卫的灵修生活与我的灵修生活相比较，我有什么不足的地方呢？
 
 二、灵修的目的  
 1. 特别来亲近神，与神交往  
-“我趁天未亮﹍﹍﹍﹍，我﹍﹍﹍﹍了你的言语;我趁夜更未換，将眼睁开，为要﹍﹍﹍﹍你的话语。”([诗119:147,148](https://www.biblegateway.com/passage/?search=诗119:147-148&version=CUVMPS))  
-“耶和华啊，你与我﹍﹍﹍﹍，你一切的命令尽都真实。”([诗119:151](https://www.biblegateway.com/passage/?search=诗119:151&version=CUVMPS))
+“我趁天未亮▁▁▁▁，我▁▁▁▁了你的言语;我趁夜更未換，将眼睁开，为要▁▁▁▁你的话语。”([诗119:147,148](https://www.biblegateway.com/passage/?search=诗119:147-148&version=CUVMPS))  
+“耶和华啊，你与我▁▁▁▁，你一切的命令尽都真实。”([诗119:151](https://www.biblegateway.com/passage/?search=诗119:151&version=CUVMPS))
 
 2. 特别到神面前来支取能力，并得到主的引导  
-“因为出于﹍﹍﹍﹍，没有一句不带能力的。”([路1:37](https://www.biblegateway.com/passage/?search=路1:37&version=CUVMPS))  
-“你的﹍﹍﹍﹍是我脚前的灯，是我路上的光。”([诗119:105](https://www.biblegateway.com/passage/?search=诗119:105&version=CUVMPS))
+“因为出于▁▁▁▁，没有一句不带能力的。”([路1:37](https://www.biblegateway.com/passage/?search=路1:37&version=CUVMPS))  
+“你的▁▁▁▁是我脚前的灯，是我路上的光。”([诗119:105](https://www.biblegateway.com/passage/?search=诗119:105&version=CUVMPS))
 
 3. 特别到神面前来，使心意得到更新，渐渐活出基督的样式  
-“我们众人既然敞着脸得以﹍﹍﹍﹍主的荣光，好像从镜子里返照，就变成主的﹍﹍﹍﹍，荣上加荣，如同从主的灵变成的。” ([林后3:18](https://www.biblegateway.com/passage/?search=林后3:18&version=CUVMPS))
+“我们众人既然敞着脸得以▁▁▁▁主的荣光，好像从镜子里返照，就变成主的▁▁▁▁，荣上加荣，如同从主的灵变成的。” ([林后3:18](https://www.biblegateway.com/passage/?search=林后3:18&version=CUVMPS))
 
 三、灵修前的准备  
 1. 时间和场所  
@@ -56,9 +56,9 @@ permalink: /Lesson4.html
 
 2·读经与默想  
 (1)读经：怀着祷告的心志读每日的经文，最好要读3次以上。  
-第一次读(粗读)-一开声不停顿地读，并要了解经文的大意。  
-第二次读(细读)-不要漏掉任何细节，仔细地推敲上文下理，理解经文的真正含义。  
-第三次读(解经)-以经文的整体含义作为依据，对特别有感动的经文，加以解释。
+第一次读(粗读) 一 开声不停顿地读，并要了解经文的大意。  
+第二次读(细读) 一 不要漏掉任何细节，仔细地推敲上文下理，理解经文的真正含义。  
+第三次读(解经) 一 以经文的整体含义作为依据，对特别有感动的经文，加以解释。
 
 (2)默想：默想时可以参考以下5个提问：  
 (1)要认的罪是什么？  
@@ -73,9 +73,9 @@ permalink: /Lesson4.html
 应用就是将默想当中所领受的神的话语，实践在自己的实际生活中如果灵修只停留在经文知识的理解上，而没有实际生活中的应用，我们的属灵生命很难得到长进。
 
 应用时应注意以下3点：  
-(1)个人化 -- 应用要针对我个人的生活。  
-(2)具体化 -- 应用要针对具体的事情。  
-(3)可能性 -- 应用要针对我能做到的事情。
+(1)个人化 一 应用要针对我个人的生活。  
+(2)具体化 一 应用要针对具体的事情。  
+(3)可能性 一 应用要针对我能做到的事情。
 
 4. 以祷告来结束  
 以今天所领受的神的话语和所蒙受的恩典为中心，祈求主带领今天一天的生活，并让我在生活中能够应用今天所领受的话语，尽力效法基督。灵修刚开始的祷告可以简短一点，而最后的结束祷告可以按第三课中所学过的“赞美、感恩、认罪、祈求、代祷”的顺序来做。
@@ -85,7 +85,7 @@ permalink: /Lesson4.html
 
 灵修笔记本
 经文：赛58:10-12
-日期： 1993年5月 15日
+日期：1993年5月 15日
 主题：大使命工人
 天气：时转多云
 读经
