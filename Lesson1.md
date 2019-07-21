@@ -94,6 +94,6 @@ permalink: /Lesson1.html
 
 >结果子的秘诀
 >1. 常在基督里：  
-“我是葡萄树，你们是枝子;常在▁▁▁▁，我也常在祂里面，这人就▁▁▁▁▁；因为离了我，你们就不能作什么。”[约15.5](https://www.biblegateway.com/passage/?search=约15.5&version=CUVMPS)
+“我是葡萄树，你们是枝子；常在▁▁▁▁，我也常在祂里面，这人就▁▁▁▁▁；因为离了我，你们就不能作什么。”[约15.5](https://www.biblegateway.com/passage/?search=约15.5&version=CUVMPS)
 >2. 勇于牺牲自己：  
-我实实在在地告诉你们：一粒麦子不落在地里▁▁▁▁了,仍旧是一粒;若是▁▁▁了，就▁▁▁许多子粒来。”[约12.24](https://www.biblegateway.com/passage/?search=约12.24&version=CUVMPS)
+我实实在在地告诉你们：一粒麦子不落在地里▁▁▁▁了，仍旧是一粒；若是▁▁▁了，就▁▁▁许多子粒来。”[约12.24](https://www.biblegateway.com/passage/?search=约12.24&version=CUVMPS)
