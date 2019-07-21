@@ -85,8 +85,10 @@ permalink: /Lesson1.html
 
 + 仁义的果子:  
 “使你们能分别是非，作诚实无过的人，直到基督的日子；并靠着耶稣基督结满了▁▁▁▁，叫荣耀称赞归与神。”[腓1.10-11](https://www.biblegateway.com/passage/?search=腓1.10-11&version=CUVMPS)
-+ 光明的果子: [弗5.8-9](https://www.biblegateway.com/passage/?search=弗5.8-9&version=CUVMPS)
-+ 圣灵的果子: [加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
++ 光明的果子:  
+"从前你们是暗昧的，但如今在主里面是▁▁▁▁的，行事为人就当像光明的子女。光明所结的果子就是一切▁▁▁▁、▁▁▁▁、▁▁▁▁。”[弗5.8-9](https://www.biblegateway.com/passage/?search=弗5.8-9&version=CUVMPS)
++ 圣灵的果子:  
+"圣灵所结的果子，就是▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁。这样的事，没有律法禁止。”[加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
 + 传福音的果子: [徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPS)  
 
 >结果子的秘诀
