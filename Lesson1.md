@@ -45,9 +45,13 @@ permalink: /Lesson1.html
 + 基督的门徒:  
 在主耶稣时代，“门徒”指的是跟从老师，并遵守祂的教导和生活方式的人。我们作主的门徒，就是要跟从祂，效法祂。
 “耶稣对他们说：‘来▁▁▁我！我要叫你们▁▁如得鱼一样。’他们就立刻舍了网，▁▁▁▁了祂。"[太4.19-20](https://www.biblegateway.com/passage/?search=太4.19-20&version=CUVMPS)
-+ 基督的朋友: [约15.14](https://www.biblegateway.com/passage/?search=约15.14&version=CUVMPS)
-+ 基督的肢体: [罗12.4-5](https://www.biblegateway.com/passage/?search=罗12.4-5&version=CUVMPS)
-+ 圣灵的殿: [林前6.19](https://www.biblegateway.com/passage/?search=林前6.19&version=CUVMPS)
++ 基督的朋友:  
+非常感谢主，祂不仅给了我们基督徒的身分，而且使我们成为祂的朋友。
+“你们若▁▁▁▁我所吩咐的，就是我的▁▁▁▁了。以后我不再称你们为▁▁▁▁，因仆人不知道主人所作的事；我乃称你们为▁▁▁▁，因为我从我父所听见的，已经都告诉你们了。"[约15.14](https://www.biblegateway.com/passage/?search=约15.14&version=CUVMPS)
++ 基督的肢体:  
+“正如我们一个身体上有好些▁▁▁▁，▁▁▁▁也不都是一样的用处。我们这许多人，在基督里成为一身，互相联络作▁▁▁▁，也是如此。”[罗12.4-5](https://www.biblegateway.com/passage/?search=罗12.4-5&version=CUVMPS)
++ 圣灵的殿:  
+"岂不知你们的身子就是▁▁▁▁▁吗？这圣灵是从神而来，住在你们▁▁▁▁的。”[林前6.19](https://www.biblegateway.com/passage/?search=林前6.19&version=CUVMPS)
 + 天上的国民: [腓3.20](https://www.biblegateway.com/passage/?search=腓3.20&version=CUVMPS)
 + 地上的客旅: [彼前2.11, 来11.16](https://www.biblegateway.com/passage/?search=彼前2.11,来11.16&version=CUVMPS)
 + 被基督派遣到世上的人: [约17.18](https://www.biblegateway.com/passage/?search=约17.18&version=CUVMPS)
