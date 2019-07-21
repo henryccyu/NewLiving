@@ -88,9 +88,12 @@ permalink: /Lesson1.html
 + 光明的果子:  
 "从前你们是暗昧的，但如今在主里面是▁▁▁▁的，行事为人就当像光明的子女。光明所结的果子就是一切▁▁▁▁、▁▁▁▁、▁▁▁▁。”[弗5.8-9](https://www.biblegateway.com/passage/?search=弗5.8-9&version=CUVMPS)
 + 圣灵的果子:  
-"圣灵所结的果子，就是▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁、▁▁。这样的事，没有律法禁止。”[加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
-+ 传福音的果子: [徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPS)  
+"圣灵所结的果子，就是▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁。这样的事，没有律法禁止。”[加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
++ 传福音的果子:  
+“但圣灵降临在你们身上，你们就必得着▁▁▁;并要在耶路撒冷、犹太全地和撒玛利亚，直到地极，作▁▁▁。"[徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPS)  
 
 >结果子的秘诀
-+ 常在基督里：[约15.5](https://www.biblegateway.com/passage/?search=约15.5&version=CUVMPS)
-+ 轻看自己的性命：[约12.24](https://www.biblegateway.com/passage/?search=约12.24&version=CUVMPS)
+>1. 常在基督里：  
+“我是葡萄树，你们是枝子;常在▁▁▁▁，我也常在祂里面，这人就▁▁▁▁▁；因为离了我，你们就不能作什么。”[约15.5](https://www.biblegateway.com/passage/?search=约15.5&version=CUVMPS)
+>2. 勇于牺牲自己：  
+我实实在在地告诉你们：一粒麦子不落在地里▁▁▁▁了,仍旧是一粒;若是▁▁▁了，就▁▁▁许多子粒来。”[约12.24](https://www.biblegateway.com/passage/?search=约12.24&version=CUVMPS)
