@@ -20,7 +20,9 @@ permalink: /Lesson1.html
 当我们成为“基督徒" ，我们就成为基督的朋友，主的门徒，我们的身体成为圣灵的殿，我们的生命从此改变。我们当为自己拥有“基督徒"的身分而欢欣、自豪。
   
 二、作基督徒的含义  
+
 1．基督降世救人的目的:  
+
 “我(主耶穌)來了，是要叫羊(人)▁▁▁▁，并且▁▁▁▁。[约10.10](https://www.biblegateway.com/passage/?search=约10.10&version=CUVMPS)　　
 从这里我们可以看出主耶稣对我们的心意：  
 　1) 要叫我们得生命;相信耶稣，以祂为救主。  
@@ -32,12 +34,16 @@ permalink: /Lesson1.html
 "我已经与基督▁▁▁▁，现在活着的不再是▁▁▁▁，乃是▁▁▁▁在我里面活着，祂是▁▁▁▁，为我▁▁▁▁。[加2.20](https://www.biblegateway.com/passage/?search=加2.20&version=CUVMPS)
 
 3．基督徒的10种身份  
+
 + 蒙神呼召，从世界中分别出来的人:  
 他们▁▁▁▁▁▁▁，正如我▁▁▁▁▁▁。求你用真理使他们▁▁▁▁▁，你的道就是真理。[约17.16-17](https://www.biblegateway.com/passage/?search=约17.16-17&version=CUVMPS)  
 你们若▁▁▁▁▁▁，世界必爱属自己的；只因你们▁▁▁▁▁▁，乃是我从世界中▁▁▁▁了你们，所以世界就恨你们。[约15.19](https://www.biblegateway.com/passage/?search=约15.19&version=CUVMPS)  
 这里的“世界"，指的是魔鬼掌权的这一充满罪恶的幽暗世界。“从世界中分别出来”指的是我们虽然生活在这个世界上，但不属于这个世界，也不随从这世界的风俗。
-+ 神的儿女: [约1.12-13](https://www.biblegateway.com/passage/?search=约1.12-13&version=CUVMPS)
-+ 基督的门徒: [太4.19-20](https://www.biblegateway.com/passage/?search=太4.19-20&version=CUVMPS)
++ 神的儿女:  
+凡▁▁▁▁祂的，就是信祂名的人，祂就赐他们▁▁▁▁，作▁▁▁▁。这人不是从血气生的，不是从情欲生的，也不是从人意生的，乃是从▁▁▁▁生的。” [约1.12-13](https://www.biblegateway.com/passage/?search=约1.12-13&version=CUVMPS)
++ 基督的门徒:  
+在主耶稣时代，“门徒”指的是跟从老师，并遵守祂的教导和生活方式的人。我们作主的门徒，就是要跟从祂，效法祂。
+“耶稣对他们说：‘来▁▁▁我！我要叫你们▁▁如得鱼一样。’他们就立刻舍了网，▁▁▁▁了祂。"[太4.19-20](https://www.biblegateway.com/passage/?search=太4.19-20&version=CUVMPS)
 + 基督的朋友: [约15.14](https://www.biblegateway.com/passage/?search=约15.14&version=CUVMPS)
 + 基督的肢体: [罗12.4-5](https://www.biblegateway.com/passage/?search=罗12.4-5&version=CUVMPS)
 + 圣灵的殿: [林前6.19](https://www.biblegateway.com/passage/?search=林前6.19&version=CUVMPS)
