@@ -53,22 +53,42 @@ permalink: /Lesson1.html
 “正如我们一个身体上有好些▁▁▁▁，▁▁▁▁也不都是一样的用处。我们这许多人，在基督里成为一身，互相联络作▁▁▁▁，也是如此。”[罗12.4-5](https://www.biblegateway.com/passage/?search=罗12.4-5&version=CUVMPS)
 + 圣灵的殿:  
 "岂不知你们的身子就是▁▁▁▁▁吗？这圣灵是从神而来，住在你们▁▁▁▁的。”[林前6.19](https://www.biblegateway.com/passage/?search=林前6.19&version=CUVMPS)
-+ 天上的国民: [腓3.20](https://www.biblegateway.com/passage/?search=腓3.20&version=CUVMPS)
-+ 地上的客旅: [彼前2.11, 来11.16](https://www.biblegateway.com/passage/?search=彼前2.11,来11.16&version=CUVMPS)
-+ 被基督派遣到世上的人: [约17.18](https://www.biblegateway.com/passage/?search=约17.18&version=CUVMPS)
-+ 基督的执事，神奥秘事的管家: [林前4.1-2](https://www.biblegateway.com/passage/?search=林前4.1-2&version=CUVMPS)
++ 天上的国民:  
+“我们却是天上的▁▁▁▁，并且▁▁▁▁救主，就是主耶稣基督从天上降临。”[腓3.20](https://www.biblegateway.com/passage/?search=腓3.20&version=CUVMPS)
++ 地上的客旅:  
+“亲爱的弟兄啊，你们是▁▁▁▁，是▁▁▁▁的。”[彼前2.11](https://www.biblegateway.com/passage/?search=彼前2.11&version=CUVMPS)  
+“他们却▁▁▁▁一个更美的▁▁▁▁，就是在天上的。所以神被称为他们的神，并不以为耻，祂已经给他们预备了▁▁▁▁。”[来11.16](https://www.biblegateway.com/passage/?search=来11.16&version=CUVMPS)  
+真正的基督徒从不认为他们永远的盼望会在这地上，他们却羡慕荣美的家乡——天国。的确，我们基督徒只是这世上的客旅。我们永远的归宿是在天上。
++ 被基督派遣到世上的人:  
+“你(父神)怎样▁▁▁我到世上，我也照样▁▁▁他们到▁▁▁。”[约17.18](https://www.biblegateway.com/passage/?search=约17.18&version=CUVMPS)
++ 基督的执事，神奥秘事的管家:  
+"人应当以我们所为▁▁▁▁▁▁，为▁▁▁▁▁▁，所求于管家的，是要他有▁▁▁▁▁。”[林前4.1-2](https://www.biblegateway.com/passage/?search=林前4.1-2&version=CUVMPS)
 
-4. 基督徒的新生活
-+ 顺服基督的生活: [路22.42, 来5.8-9](https://www.biblegateway.com/passage/?search=路22.42,来5.8-9&version=CUVMPS)
-+ 灵命长进的生活: [弗4.13-14](https://www.biblegateway.com/passage/?search=弗4.13-14&version=CUVMPS)
-+ 多结果子的生活: [约15.8](https://www.biblegateway.com/passage/?search=约15.8&version=CUVMPS)
+四、基督徒的新生活
 
-5. 基督徒要结出的果子
-+ 仁义的果子: [腓1.10-11](https://www.biblegateway.com/passage/?search=腓1.10-11&version=CUVMPS)
+基督徒的新生活可以简单概括为“我在基督里的生活，基督在我里面的生活”。这种新生活具体表现在以下3个方面。
+
+1．顺服基督的生活
+我们是基督徒，基督是我们的救主和生命的主。所以，我们只有顺服主耶穌基督，才能在自己的生活中体验到神的大能和大爱。顺服就是要屈身行在神的旨意当中。主耶稣对神的顺服是我们最好的榜样。  
+“父啊，你若愿意，就把这杯撤去，然而，不要成就▁▁▁▁▁▁，只要成就▁▁▁▁▁▁。” [路22.42](https://www.biblegateway.com/passage/?search=路22.42&version=CUVMPS)  
+“祂虽然为儿子，还是因所受的苦难学了▁▁▁▁。祂既得以完全，就为凡▁▁▁▁祂的人成了永远得救的根源。”[来5.8-9](https://www.biblegateway.com/passage/?search=来5.8-9&version=CUVMPS)
+
+2．灵命长进的生活  
+“基督徒”因信主耶稣而得以重生，理应在基督里更新变化，不断长进，过一个得胜的基督徒生活。  
+“直等到我们众人在真道上同归于一，认识神的儿子，得以▁▁▁▁，满有基督▁▁▁▁的身量，使我们不再作▁▁▁▁，中了人的诡计和欺骗的法术，被一切异教之风摇动，飘来飘去，就随从各样的异端。”[弗4.13-14](https://www.biblegateway.com/passage/?search=弗4.13-14&version=CUVMPS)
+
+3．多结果子的生活
+神从这世界中拣选了我们，让我们作祂的门徒，是要我们分别为圣，多結果子，荣耀归神。  
+“你们▁▁▁▁▁▁，我父就因此得荣耀，你们也就是我的门徒了。”[约15.8](https://www.biblegateway.com/passage/?search=约15.8&version=CUVMPS)
+
+五、基督徒要结出的果子
+
++ 仁义的果子:  
+“使你们能分别是非，作诚实无过的人，直到基督的日子；并靠着耶稣基督结满了▁▁▁▁，叫荣耀称赞归与神。”[腓1.10-11](https://www.biblegateway.com/passage/?search=腓1.10-11&version=CUVMPS)
 + 光明的果子: [弗5.8-9](https://www.biblegateway.com/passage/?search=弗5.8-9&version=CUVMPS)
 + 圣灵的果子: [加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
 + 传福音的果子: [徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPS)  
 
-&nbsp;&nbsp;&nbsp;&nbsp;[**结果子的秘诀**]
+>结果子的秘诀
 + 常在基督里：[约15.5](https://www.biblegateway.com/passage/?search=约15.5&version=CUVMPS)
 + 轻看自己的性命：[约12.24](https://www.biblegateway.com/passage/?search=约12.24&version=CUVMPS)
