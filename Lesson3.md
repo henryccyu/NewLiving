@@ -16,9 +16,9 @@ permalink: /Lesson3.html
 一、祷告的意义
 
 1. 祷告是与神属灵的对话  
-　
+　  
 我们可以通过祷告与神进行属灵的交谈,从而保持与神的亲密的相交。借着这样的属灵相交,我们可以来到神的施恩宝座前,领取他所赐丰盛的恩典。  
-　
+　  
 + [希伯来书4:16](https://www.biblegateway.com/passage/?search=希伯来书4:16&version=CUVMPS)
 
 2. 祷告是属灵的呼吸
