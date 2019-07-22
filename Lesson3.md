@@ -16,12 +16,10 @@ permalink: /Lesson3.html
 一、祷告的意义
 
 1. 祷告是与神属灵的对话  
-　  
 我们可以通过祷告与神进行属灵的交谈,从而保持与神的亲密的相交。借着这样的属灵相交,我们可以来到神的施恩宝座前,领取他所赐丰盛的恩典。  
 + [希伯来书4:16](https://www.biblegateway.com/passage/?search=希伯来书4:16&version=CUVMPS)
 
 2. 祷告是属灵的呼吸  
-　  
 如果我们停止呼吸5~10分钟，我们就会窒息而死亡。基督徒属灵的生命也是如此。如果没有祷告，我们在天路历程中真是寸步难行。通过祷告，我们应该向神陈明自己的罪，承认我们的过犯，从而得到神的赦免，与此同时，我们借着祷告，得到神的帮助和圣灵的能力。  
 + [诗篇32:5](https://www.biblegateway.com/passage/?search=诗篇32:5&version=CUVMPS)
 + [诗篇46:1](https://www.biblegateway.com/passage/?search=诗篇46:1&version=CUVMPS)
@@ -37,13 +35,11 @@ permalink: /Lesson3.html
 + [约翰福音4:24](https://www.biblegateway.com/passage/?search=约翰福音4:24&version=CUVMPS)
 
 2. 祷告的中保 —— 耶稣基督  
-　  
 主耶稣道成肉身来到这个世界，在十字架上受死，成就了神的救赎计划，然后复活、升天，并坐在全能父神的右边，作了神与我们之间唯一的中保，并且在父神面前为我们每一位信徒代求([罗马书8:34](https://www.biblegateway.com/passage/?search=罗马书8:34&version=CUVMPS))。所以,当我们奉耶稣的名求告父神时，父神就因祂的名应允我们的祷告。  
 + [提摩太前书2:5](https://www.biblegateway.com/passage/?search=提摩太前书2:5&version=CUVMPS)
 + [约翰福音16:23-24](https://www.biblegateway.com/passage/?search=约翰福音16:23-24&version=CUVMPS)
 
 3. 祷告的必要条件 —— 信心  
-　  
 我们的祷告应是信心的祷告，实在的祷告。祷告不能只停留在形式上。漫不经心、敷衍了事的祷告，是虚伪的祷告，是轻慢神的祷告。神看中的是我们内心的态度，是否毫无怀疑地相信神的信实和全能，这是我们祷告蒙应允的必要条件。  
 + [希伯来书11:6](https://www.biblegateway.com/passage/?search=希伯来书11:6&version=CUVMPS)
 
@@ -52,7 +48,6 @@ permalink: /Lesson3.html
 >祷告时我们为什么要用“奉耶稣的名祷告”来结束呢？因为我们本是罪人，本无资格向神祷告的，但主耶稣作我们与神之间唯一的中保，我们可以因着祂的名，坦然无惧地来到神面前；我们的祷告也因着祂的名，蒙父神的悦纳。
 
 5. 代祷  
-　  
 代祷就是在祷告中存着对别人的爱心，照着他们所需的向神祈求。
 + [撒母耳记上12:23](https://www.biblegateway.com/passage/?search=撒母耳记上12:23&version=CUVMPS)
 
