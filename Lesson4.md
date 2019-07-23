@@ -26,6 +26,7 @@ permalink: /Lesson4.html
 2．大卫的模范  
 + “求你使我▁▁▁▁得听你慈爱之言，因我倚靠你;求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
 + “耶和华啊，▁▁▁▁你必听我的声音；▁▁▁▁我必向你陈明我的心意，并要警醒。” ([诗53](https://www.biblegateway.com/passage/?search=诗53&version=CUVMPS))  
+
 大卫能够成为合神心意的人，并被神大大使用，成就了神的旨意，其重要的原因之一就是他与神保持着很深的相交。  
 大卫的灵修生活与我的灵修生活相比较，我有什么不足的地方呢？
 
