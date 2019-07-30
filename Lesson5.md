@@ -36,17 +36,17 @@
 “我们应当靠着耶稣，常常以▁▁▁▁为祭献给神，这就是那承认主名之人▁▁▁▁的果子。 ([来13:15](https://www.biblegateway.com/quicksearch/?quicksearch=来13:15&qs_version=CUVMPT))
 
 (1) 赞美的方式： (请查考相关的经文和内容)  
-<li>[诗103:1-5](https://www.biblegateway.com/quicksearch/?quicksearch=诗103:1-5&qs_version=CUVMPT) —— 以敬虔感恩的心来赞美神  </li>
-<li>[路19:37](https://www.biblegateway.com/quicksearch/?quicksearch=路19:37&qs_version=CUVMPT) —— 以欢乐和大声来赞美神  </li>
-<li>[诗149:3](https://www.biblegateway.com/quicksearch/?quicksearch=诗149:3&qs_version=CUVMPT) —— 用跳舞、击鼓和弹琴来赞美神  </li>
-<li>[诗47:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗47:1&qs_version=CUVMPT) —— 用拍手、夸胜的声音来赞美神  </li>
++ [诗103:1-5](https://www.biblegateway.com/quicksearch/?quicksearch=诗103:1-5&qs_version=CUVMPT) —— 以敬虔感恩的心来赞美神  
++ [路19:37](https://www.biblegateway.com/quicksearch/?quicksearch=路19:37&qs_version=CUVMPT) —— 以欢乐和大声来赞美神  
++ [诗149:3](https://www.biblegateway.com/quicksearch/?quicksearch=诗149:3&qs_version=CUVMPT) —— 用跳舞、击鼓和弹琴来赞美神  
++ [诗47:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗47:1&qs_version=CUVMPT) —— 用拍手、夸胜的声音来赞美神  
 
 (2) 赞美的地点  
-<li>[出15:1](https://www.biblegateway.com/quicksearch/?quicksearch=出15:1&qs_version=CUVMPT)  </li>
-<li>[赛42:11](https://www.biblegateway.com/quicksearch/?quicksearch=赛42:11&qs_version=CUVMPT)  </li>
-<li>[诗150:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗150:1&qs_version=CUVMPT)  </li>
-<li>[徒16:23-27](https://www.biblegateway.com/quicksearch/?quicksearch=徒16:23-27&qs_version=CUVMPT)  </li>
-<li>[来2:12](https://www.biblegateway.com/quicksearch/?quicksearch=来2:12&qs_version=CUVMPT)</li>
++ [出15:1](https://www.biblegateway.com/quicksearch/?quicksearch=出15:1&qs_version=CUVMPT)  
++ [赛42:11](https://www.biblegateway.com/quicksearch/?quicksearch=赛42:11&qs_version=CUVMPT)  
++ [诗150:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗150:1&qs_version=CUVMPT)  
++ [徒16:23-27](https://www.biblegateway.com/quicksearch/?quicksearch=徒16:23-27&qs_version=CUVMPT)  
++ [来2:12](https://www.biblegateway.com/quicksearch/?quicksearch=来2:12&qs_version=CUVMPT)
 
 参考：圣所、山顶、海边、监狱、会中等。
 
