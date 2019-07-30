@@ -1,7 +1,7 @@
 # 新生活与相交
 背诵经文：
-<li>[罗马书 12:4,5](https://www.biblegateway.com/passage/？search=罗马书12:4-5&version=CUVMPS)</li>
-<li>[罗马书 12:1](https://www.biblegateway.com/passage/？search=罗马书12:1&version=CUVMPS)</li>
+<li>[罗马书 12:4,5](https://www.biblegateway.com/passage/?search=罗马书12:4-5&version=CUVMPS)</li>
+<li>[罗马书 12:1](https://www.biblegateway.com/passage/?search=罗马书12:1&version=CUVMPS)</li>
 
 基督徒所说的相交与世人所讲的交往是不同的。基督徒的相交开始于耶稣基督的十字架。在十字架上，那叫人与神隔绝的罪的墙壁已经被拆除了，借此，信徒恢复了与神的垂直相交；又因主耶稣基督成了教会的头，开始了信徒与信徒之间的水平相交。
 
@@ -19,7 +19,7 @@
 
 “我在亲近我的人中要显为▁▁▁▁；在众民面前，我要得▁▁▁▁。 ([利10:3](https://www.biblegateway.com/quicksearch/?quicksearch=利10:3&qs_version=CUVMPT))  
 "时候将到，如今就是了，那▁▁▁▁拜父的，要用▁▁▁▁和▁▁▁▁拜他，因为父要这样的人拜祂。神是个▁▁▁▁，所以拜祂的，必须用▁▁▁▁和▁▁▁▁拜祂。” ([约4:23-24](https://www.biblegateway.com/quicksearch/?quicksearch=约4:23-24&qs_version=CUVMPT))  
-"所以弟兄们，我以神的慈悲劝你们，将▁▁▁▁献上，当作▁▁▁▁，是▁▁▁▁的，是▁▁▁▁的，你们如此事奉，乃是理所当然的。” ([罗12:1](https://www.biblegateway.com/passage/？search=罗马书12:1&version=CUVMPS))
+"所以弟兄们，我以神的慈悲劝你们，将▁▁▁▁献上，当作▁▁▁▁，是▁▁▁▁的，是▁▁▁▁的，你们如此事奉，乃是理所当然的。” ([罗12:1](https://www.biblegateway.com/passage/?search=罗马书12:1&version=CUVMPS))
 
 >参加崇拜的注意事项  
 第一，参加崇拜不迟到，也不提前离开。  
