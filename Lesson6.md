@@ -1,7 +1,7 @@
 # 六 新生活与传福音
 背诵经文：
-+ [使徒行传 1:8](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行传 1:8&qs_version=CUVMPT)
-+ [罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书 1:16&qs_version=CUVMPT)
++ [使徒行传 1:8](https://www.biblegateway.com/quicksearch/?quicksearch=使徒行传1:8&qs_version=CUVMPT)
++ [罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT)
 
 神的独生子耶稣为我们的罪死了，并且为我们的义复活了！这是对全类最好的消息，就是福音。我们应当把这一大好的信息传播到世界每个角落，与更多的人共享这福音的好处。
 耶稣基督在祂升天前，给门徒们颁布了一条“大使命” ：
