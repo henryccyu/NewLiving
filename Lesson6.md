@@ -52,7 +52,7 @@
 
 + 安得烈 ([约翰福音 1:40-42](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:40-42&qs_version=CUVMPT))
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-+ 腓力 ([约翰福音 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音 1:43-46&qs_version=CUVMPT))
++ 腓力 ([约翰福音 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
 3、保罗  
