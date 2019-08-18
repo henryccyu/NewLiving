@@ -36,15 +36,15 @@
 
 1、主耶稣  
 请读[约翰福音 4:7-30](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音4:7-30&qs_version=CUVMPT)。  
-(1) 主耶稣怎样打开了话题？  
+1) 主耶稣怎样打开了话题？  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-(2) 主耶稣怎样将话题引到永生的事情上？  
+2) 主耶稣怎样将话题引到永生的事情上？  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-(3) 主耶稣怎样帮助妇人认识自己？  
+3) 主耶稣怎样帮助妇人认识自己？  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-(4) 主耶稣怎样抓住时机来传福音？  
+4) 主耶稣怎样抓住时机来传福音？  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-(5) 从中你得到的启示是什么？  
+5) 从中你得到的启示是什么？  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁
 
 2、安得烈和腓力  
@@ -56,11 +56,11 @@
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
 3、保罗  
-保罗为罗马人愿意做什么事情？ ([罗马书 1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
++ 保罗为罗马人愿意做什么事情？ ([罗马书 1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-保罗说他不以为耻的是什么？ ([罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))  
++ 保罗说他不以为耻的是什么？ ([罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-为什么？([罗马书 1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))  
++ 为什么？([罗马书 1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
 >如何有效地传福音
