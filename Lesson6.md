@@ -50,17 +50,17 @@
 2、安得烈和腓力  
 安得烈和腓力见到耶稣后，所做的第一件事情是什么？他们是如何去做的？  
 
-+ 安得烈 ([约翰福音 1:40-42](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:40-42&qs_version=CUVMPT))
++ 安得烈 ([约翰福音 1:40-42](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:40-42&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-+ 腓力 ([约翰福音 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))
++ 腓力 ([约翰福音 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
 3、保罗  
-保罗为罗马人愿意做什么事情？ ([罗马书 1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))
+保罗为罗马人愿意做什么事情？ ([罗马书 1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-保罗说他不以为耻的是什么？ ([罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))
+保罗说他不以为耻的是什么？ ([罗马书 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
-为什么？([罗马书 1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))
+为什么？([罗马书 1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
 >如何有效地传福音
