@@ -94,7 +94,7 @@
 (3)结果：  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
-3·保罗的陈述(徒17:16~34)
+3·保罗的陈述([徒17:16-34](https://www.biblegateway.com/quicksearch/?quicksearch=徒17:16-34&qs_version=CUVMPT)
 (1)背景：  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 (2)主要内容：  
@@ -102,7 +102,7 @@
 (3)结果：  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 
-4·保罗的见证(徒21:37~22:21)
+4·保罗的见证([徒21:37-22:21](https://www.biblegateway.com/quicksearch/?quicksearch=徒21:37-22:21&qs_version=CUVMPT))
 (1)背景：  
 ▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁  
 (2)主要内容：  
