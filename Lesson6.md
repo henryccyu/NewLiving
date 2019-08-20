@@ -45,8 +45,8 @@
 2、安得烈和腓力  
 安得烈和腓力见到耶稣后，所做的第一件事情是什么？他们是如何去做的？  
 
-+ 安得烈 ([约 1:40-42](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:40-42&qs_version=CUVMPT))  
-+ 腓力 ([约 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))  
++ 安得烈 ([约1:40-42](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:40-42&qs_version=CUVMPT))  
++ 腓力 ([约1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))  
 
 3、保罗  
 + 保罗为罗马人愿意做什么事情？ ([罗1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
