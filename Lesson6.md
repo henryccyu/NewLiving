@@ -29,8 +29,8 @@
 
 我们传福音不仅仅是道义上的要求，更要看到这是复活的主升天前满有天上地下所有权柄的命令。因为主说祂“不愿有一人沉沦，乃愿人人都悔改”（彼后3：9），祂要我们在传福音的事上服侍他，我们没有理由推却，惟有接受祂的命令。使徒保罗曾经感叹：“若不传福音，我就有祸了。” 保罗是我们当效法的榜样，让我们同心合意地祈求神赐给我们一个热情见证主的心，让我们能倾注全力去传主的福音。
 
-+ “但▁▁▁▁降临在你们身上，你们就必得着▁▁▁▁；并要在耶路撒冷、犹太全地和撒玛利亚，直到地极，作我的见证。” (徒1:8)
-+ “务要▁▁▁▁，无论▁▁▁▁▁▁▁▁，总要专心。” (提后4:2)
++ “但▁▁▁▁降临在你们身上，你们就必得着▁▁▁▁；并要在耶路撒冷、犹太全地和撒玛利亚，直到地极，作我的见证。” ([徒1:8](https://www.biblegateway.com/quicksearch/?quicksearch=徒1:8&qs_version=CUVMPT))
++ “务要▁▁▁▁，无论▁▁▁▁▁▁▁▁，总要专心。” ([提后4:2](https://www.biblegateway.com/quicksearch/?quicksearch=提后4:2&qs_version=CUVMPT))
 
 二、传福音的榜样
 
@@ -49,9 +49,9 @@
 + 腓力 ([约 1:43-46](https://www.biblegateway.com/quicksearch/?quicksearch=约翰福音1:43-46&qs_version=CUVMPT))  
 
 3、保罗  
-+ 保罗为罗马人愿意做什么事情？ ([罗 1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
-+ 保罗说他不以为耻的是什么？ ([罗 1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))  
-+ 为什么？([罗 1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))  
++ 保罗为罗马人愿意做什么事情？ ([罗1:15](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:15&qs_version=CUVMPT))  
++ 保罗说他不以为耻的是什么？ ([罗1:16](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:16&qs_version=CUVMPT))  
++ 为什么？([罗1:17](https://www.biblegateway.com/quicksearch/?quicksearch=罗马书1:17&qs_version=CUVMPT))  
 
 >如何有效地传福音
 >
@@ -68,22 +68,22 @@
 
 福音的核心是耶稣基督。传讲福音时,以耶稣基督为中心,具体可以采取各种各样不同的内容。 《圣经》中可以观察到：彼得、保罗等福音的先驱们，根据不同的情况从不同的侧面传讲耶穌基督,取得比较好的效果。
 
-1、彼得的讲说([徒2:14~41](https://www.biblegateway.com/quicksearch/?quicksearch=徒2:1441&qs_version=CUVMPT))
+1、彼得的讲说([徒2:14~41](https://www.biblegateway.com/quicksearch/?quicksearch=徒2:1441&qs_version=CUVMPT))  
 (1) 背景：  
 (2) 主要内容：  
 (3) 结果：  
 
-2、司提反的申诉([徒7:1~60](https://www.biblegateway.com/quicksearch/?quicksearch=徒7:1-60&qs_version=CUVMPT))
+2、司提反的申诉([徒7:1~60](https://www.biblegateway.com/quicksearch/?quicksearch=徒7:1-60&qs_version=CUVMPT))  
 (1) 背景：  
 (2) 主要内容：  
 (3 )结果：  
 
-3、罗的陈述([徒17:16~34](https://www.biblegateway.com/quicksearch/?quicksearch=徒17:16-34&qs_version=CUVMPT)
+3、罗的陈述([徒17:16~34](https://www.biblegateway.com/quicksearch/?quicksearch=徒17:16-34&qs_version=CUVMPT)  
 (1) 背景：  
 (2) 主要内容：  
 (3) 结果：  
 
-4、保罗的见证([徒21:37~22:21](https://www.biblegateway.com/quicksearch/?quicksearch=徒21:37-22:21&qs_version=CUVMPT))
+4、保罗的见证([徒21:37~22:21](https://www.biblegateway.com/quicksearch/?quicksearch=徒21:37-22:21&qs_version=CUVMPT))  
 (1) 背景：  
 (2) 主要内容：  
 + 信主以前:  
