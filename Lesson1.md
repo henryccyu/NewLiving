@@ -39,29 +39,39 @@ permalink: /Lesson1.html
 
 + 蒙神呼召，从世界中分别出来的人:  
 他们▁▁▁▁▁▁▁，正如我▁▁▁▁▁▁。求你用真理使他们▁▁▁▁▁，你的道就是真理。[约17.16-17](https://www.biblegateway.com/passage/?search=约17.16-17&version=CUVMPS)  
+
 你们若▁▁▁▁▁▁，世界必爱属自己的；只因你们▁▁▁▁▁▁，乃是我从世界中▁▁▁▁了你们，所以世界就恨你们。[约15.19](https://www.biblegateway.com/passage/?search=约15.19&version=CUVMPS)  
+
 这里的“世界"，指的是魔鬼掌权的这一充满罪恶的幽暗世界。“从世界中分别出来”指的是我们虽然生活在这个世界上，但不属于这个世界，也不随从这世界的风俗。
+
 + 神的儿女:  
 凡▁▁▁▁祂的，就是信祂名的人，祂就赐他们▁▁▁▁，作▁▁▁▁。这人不是从血气生的，不是从情欲生的，也不是从人意生的，乃是从▁▁▁▁生的。” [约1.12-13](https://www.biblegateway.com/passage/?search=约1.12-13&version=CUVMPS)  
 
 + 基督的门徒:  
 在主耶稣时代，“门徒”指的是跟从老师，并遵守祂的教导和生活方式的人。我们作主的门徒，就是要跟从祂，效法祂。  
 “耶稣对他们说：‘来▁▁▁我！我要叫你们▁▁如得鱼一样。’他们就立刻舍了网，▁▁▁▁了祂。"[太4.19-20](https://www.biblegateway.com/passage/?search=太4.19-20&version=CUVMPS)
+
 + 基督的朋友:  
 非常感谢主，祂不仅给了我们基督徒的身分，而且使我们成为祂的朋友。  
 “你们若▁▁▁▁我所吩咐的，就是我的▁▁▁▁了。以后我不再称你们为▁▁▁▁，因仆人不知道主人所作的事；我乃称你们为▁▁▁▁，因为我从我父所听见的，已经都告诉你们了。"[约15.14-15](https://www.biblegateway.com/passage/?search=约15.14-15&version=CUVMPS)
+
 + 基督的肢体:  
 “正如我们一个身体上有好些▁▁▁▁，▁▁▁▁也不都是一样的用处。我们这许多人，在基督里成为一身，互相联络作▁▁▁▁，也是如此。”[罗12.4-5](https://www.biblegateway.com/passage/?search=罗12.4-5&version=CUVMPS)
+
 + 圣灵的殿:  
 "岂不知你们的身子就是▁▁▁▁▁吗？这圣灵是从神而来，住在你们▁▁▁▁的。”[林前6.19](https://www.biblegateway.com/passage/?search=林前6.19&version=CUVMPS)
+
 + 天上的国民:  
 “我们却是天上的▁▁▁▁，并且▁▁▁▁救主，就是主耶稣基督从天上降临。”[腓3.20](https://www.biblegateway.com/passage/?search=腓3.20&version=CUVMPS)
+
 + 地上的客旅:  
 “亲爱的弟兄啊，你们是▁▁▁▁，是▁▁▁▁的。”[彼前2.11](https://www.biblegateway.com/passage/?search=彼前2.11&version=CUVMPS)  
 “他们却▁▁▁▁一个更美的▁▁▁▁，就是在天上的。所以神被称为他们的神，并不以为耻，祂已经给他们预备了▁▁▁▁。”[来11.16](https://www.biblegateway.com/passage/?search=来11.16&version=CUVMPS)  
 真正的基督徒从不认为他们永远的盼望会在这地上，他们却羡慕荣美的家乡——天国。的确，我们基督徒只是这世上的客旅。我们永远的归宿是在天上。
+
 + 被基督派遣到世上的人:  
 “你(父神)怎样▁▁▁我到世上，我也照样▁▁▁他们到▁▁▁。”[约17.18](https://www.biblegateway.com/passage/?search=约17.18&version=CUVMPS)
+
 + 基督的执事，神奥秘事的管家:  
 "人应当以我们所为▁▁▁▁▁▁，为▁▁▁▁▁▁，所求于管家的，是要他有▁▁▁▁▁。”[林前4.1-2](https://www.biblegateway.com/passage/?search=林前4.1-2&version=CUVMPS)
 
@@ -86,10 +96,13 @@ permalink: /Lesson1.html
 
 + 仁义的果子:  
 “使你们能分别是非，作诚实无过的人，直到基督的日子；并靠着耶稣基督结满了▁▁▁▁，叫荣耀称赞归与神。”[腓1.10-11](https://www.biblegateway.com/passage/?search=腓1.10-11&version=CUVMPS)
+
 + 光明的果子:  
 "从前你们是暗昧的，但如今在主里面是▁▁▁▁的，行事为人就当像光明的子女。光明所结的果子就是一切▁▁▁▁、▁▁▁▁、▁▁▁▁。”[弗5.8-9](https://www.biblegateway.com/passage/?search=弗5.8-9&version=CUVMPS)
+
 + 圣灵的果子:  
 "圣灵所结的果子，就是▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁、▁▁▁。这样的事，没有律法禁止。”[加5.22](https://www.biblegateway.com/passage/?search=加5.22&version=CUVMPS)
+
 + 传福音的果子:  
 “但圣灵降临在你们身上，你们就必得着▁▁▁;并要在耶路撒冷、犹太全地和撒玛利亚，直到地极，作▁▁▁。"[徒1.8](https://www.biblegateway.com/passage/?search=徒1.8&version=CUVMPS)  
 
