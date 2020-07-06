@@ -81,9 +81,9 @@ permalink: /Lesson3.html
 >祷告的应允与神的旨意  
 + [约翰一书5:14](https://www.biblegateway.com/passage/?search=约翰一书5:14&version=CUVMPS)
 + [耶利米书33:3](https://www.biblegateway.com/passage/?search=耶利米书33:3&version=CUVMPS)  
-
-一旦在祷告中知道了神的旨意，就应该凭着信心继续祷告直到所求的得到成就。有的祷告可能很快就得到应允，有的祷告的应允则需要很长的时间，这需要我们恒久的忍耐。这时不可灰心，应更加恒切地向神祷告,并相信神必成就你的祷告。（[路加福音18:1](https://www.biblegateway.com/passage/?search=路加福音18:1&version=CUVMPS)）  
-但如果我们祈求是为要浪费在自己的宴乐中或与神毫无相关的计划中这样的祷告不会得应允。因为神不悦纳这样的祷告。([雅各书4:3](https://www.biblegateway.com/passage/?search=雅各书4:3&version=CUVMPS))
+>
+>一旦在祷告中知道了神的旨意，就应该凭着信心继续祷告直到所求的得到成就。有的祷告可能很快就得到应允，有的祷告的应允则需要很长的时间，这需要我们恒久的忍耐。这时不可灰心，应更加恒切地向神祷告,并相信神必成就你的祷告。([路加福音18:1](https://www.biblegateway.com/passage/?search=路加福音18:1&version=CUVMPS))  
+>但如果我们祈求是为要浪费在自己的宴乐中或与神毫无相关的计划中这样的祷告不会得应允。因为神不悦纳这样的祷告。([雅各书4:3](https://www.biblegateway.com/passage/?search=雅各书4:3&version=CUVMPS))
 
 >祷告不蒙应允的原因
 + 转耳不听真道 ([箴言28:9](https://www.biblegateway.com/passage/?search=箴言28:9&version=CUVMPS))
