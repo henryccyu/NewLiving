@@ -47,9 +47,29 @@ permalink: /Lesson3.html
 >
 >祷告时我们为什么要用“奉耶稣的名祷告”来结束呢？因为我们本是罪人，本无资格向神祷告的，但主耶稣作我们与神之间唯一的中保，我们可以因着祂的名，坦然无惧地来到神面前；我们的祷告也因着祂的名，蒙父神的悦纳。
 
+三、祷告的5大要素
+
+典型的祷告含有5大要素:赞美、感恩、认罪、祈求、代禱。
+
+1. 赞美  
+赞美就是在禱告中以敬虔的心来颂赞神的伟大作为,称颂神的大能、威严、慈爱、圣洁等。我们用赞美来表达自己对神的敬拜和爱。
++ [诗篇 145:1、2](https://www.biblegateway.com/quicksearch/?quicksearch=诗145.1-2&qs_version=CUVMPT)
+
+2. 感恩  
+感恩就是在祷告中因自己所蒙丰盛恩典而向神献上由衷的感谢。对自己 所遭遇的不顺心或不愉快的事情,我们也要存着感恩的心来感谢神。
++ [以弗所书 5:20](https://www.biblegateway.com/quicksearch/?quicksearch=弗5.20&qs_version=CUVMPT)
+
+3.认罪  
+认罪就是在禱告中存着诚实谦卑的心向神承认自己的罪并支取神的赦免。
++ [约翰一书 1:9](https://www.biblegateway.com/quicksearch/?quicksearch=约壹1.9&qs_version=CUVMPT)
+
+4.祈求  
+祈求就是在祷告中抓住并信靠神的应许,把自己所需所愿的向神明, 寻求他的成就和赐福。
++ [马太福音 7:7~11](https://www.biblegateway.com/quicksearch/?quicksearch=太7.7-11&qs_version=CUVMPT)
+
 5. 代祷  
 代祷就是在祷告中存着对别人的爱心，照着他们所需的向神祈求。
-+ [撒母耳记上12:23](https://www.biblegateway.com/passage/?search=撒母耳记上12:23&version=CUVMPS)
++ [撒母耳记上 12:23](https://www.biblegateway.com/passage/?search=撒母耳记上12.23&version=CUVMPS)
 
 四、祷告蒙神垂听的秘诀
 
