@@ -96,7 +96,8 @@ permalink: /Lesson3.html
 >+ 家庭夫妻不睦 ([彼得前书3:7](https://www.biblegateway.com/passage/?search=彼得前书3:7&version=CUVMPS))
 >+ 罪孽过犯太多 ([以赛亚书59:1、2](https://www.biblegateway.com/passage/?search=以赛亚书59:1-2&version=CUVMPS))
 
-五、《主祷文》
+五、《主祷文》  
+
 就像我们中间许多人一样，耶稣的门徒也不知道怎样祷告才能合乎神的心意。耶稣就教导他们祷告，这个祷告成为我们可以效法的样式，后来人们称这祷告为《主祷文》 ([马太福音6:9-13](https://www.biblegateway.com/passage/?search=马太福音6:9-13&version=CUVMPS))。《主祷文》的具体意义如下:
 
 1. 向天上的父神祷告 —— 我们***在天上的父***
