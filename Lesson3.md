@@ -79,22 +79,22 @@ permalink: /Lesson3.html
 4. 不住地祈求 —— [以弗所书6:18-19](https://www.biblegateway.com/passage/?search=以弗所书6:18-19&version=CUVMPS)
 
 >祷告的应允与神的旨意  
-+ [约翰一书5:14](https://www.biblegateway.com/passage/?search=约翰一书5:14&version=CUVMPS)
-+ [耶利米书33:3](https://www.biblegateway.com/passage/?search=耶利米书33:3&version=CUVMPS)  
+>+ [约翰一书5:14](https://www.biblegateway.com/passage/?search=约翰一书5:14&version=CUVMPS)
+>+ [耶利米书33:3](https://www.biblegateway.com/passage/?search=耶利米书33:3&version=CUVMPS)  
 >
 >一旦在祷告中知道了神的旨意，就应该凭着信心继续祷告直到所求的得到成就。有的祷告可能很快就得到应允，有的祷告的应允则需要很长的时间，这需要我们恒久的忍耐。这时不可灰心，应更加恒切地向神祷告,并相信神必成就你的祷告。([路加福音18:1](https://www.biblegateway.com/passage/?search=路加福音18:1&version=CUVMPS))  
 >
 >但如果我们祈求是为要浪费在自己的宴乐中或与神毫无相关的计划中这样的祷告不会得应允。因为神不悦纳这样的祷告。([雅各书4:3](https://www.biblegateway.com/passage/?search=雅各书4:3&version=CUVMPS))
 
 >祷告不蒙应允的原因
-+ 转耳不听真道 ([箴言28:9](https://www.biblegateway.com/passage/?search=箴言28:9&version=CUVMPS))
-+ 不怜恤穷苦人 ([箴言21:13](https://www.biblegateway.com/passage/?search=箴言21:13&version=CUVMPS))
-+ 心中怀疑不定 ([雅各书1:6、7](https://www.biblegateway.com/passage/?search=雅各书1:6-7&version=CUVMPS))
-+ 不肯饶恕别人 ([马可福音11:25-26](https://www.biblegateway.com/passage/?search=马可福音11:25-26&version=CUVMPS))
-+ 没有敬虔的心 ([约伯记27:8、9](https://www.biblegateway.com/passage/?search=约伯记27:8-9&version=CUVMPS))
-+ 存心虚空妄想 ([约伯记35:13](https://www.biblegateway.com/passage/?search=约伯记35:13&version=CUVMPS))
-+ 家庭夫妻不睦 ([彼得前书3:7](https://www.biblegateway.com/passage/?search=彼得前书3:7&version=CUVMPS))
-+ 罪孽过犯太多 ([以赛亚书59:1、2](https://www.biblegateway.com/passage/?search=以赛亚书59:1-2&version=CUVMPS))
+>+ 转耳不听真道 ([箴言28:9](https://www.biblegateway.com/passage/?search=箴言28:9&version=CUVMPS))
+>+ 不怜恤穷苦人 ([箴言21:13](https://www.biblegateway.com/passage/?search=箴言21:13&version=CUVMPS))
+>+ 心中怀疑不定 ([雅各书1:6、7](https://www.biblegateway.com/passage/?search=雅各书1:6-7&version=CUVMPS))
+>+ 不肯饶恕别人 ([马可福音11:25-26](https://www.biblegateway.com/passage/?search=马可福音11:25-26&version=CUVMPS))
+>+ 没有敬虔的心 ([约伯记27:8、9](https://www.biblegateway.com/passage/?search=约伯记27:8-9&version=CUVMPS))
+>+ 存心虚空妄想 ([约伯记35:13](https://www.biblegateway.com/passage/?search=约伯记35:13&version=CUVMPS))
+>+ 家庭夫妻不睦 ([彼得前书3:7](https://www.biblegateway.com/passage/?search=彼得前书3:7&version=CUVMPS))
+>+ 罪孽过犯太多 ([以赛亚书59:1、2](https://www.biblegateway.com/passage/?search=以赛亚书59:1-2&version=CUVMPS))
 
 五、《主祷文》
 就像我们中间许多人一样，耶稣的门徒也不知道怎样祷告才能合乎神的心意。耶稣就教导他们祷告，这个祷告成为我们可以效法的样式，后来人们称这祷告为《主祷文》 ([马太福音6:9-13](https://www.biblegateway.com/passage/?search=马太福音6:9-13&version=CUVMPS))。《主祷文》的具体意义如下:
