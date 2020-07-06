@@ -59,11 +59,11 @@ permalink: /Lesson3.html
 感恩就是在祷告中因自己所蒙丰盛恩典而向神献上由衷的感谢。对自己 所遭遇的不顺心或不愉快的事情,我们也要存着感恩的心来感谢神。
 + [以弗所书 5:20](https://www.biblegateway.com/quicksearch/?quicksearch=弗5.20&qs_version=CUVMPT)
 
-3.认罪  
+3. 认罪  
 认罪就是在禱告中存着诚实谦卑的心向神承认自己的罪并支取神的赦免。
 + [约翰一书 1:9](https://www.biblegateway.com/quicksearch/?quicksearch=约壹1.9&qs_version=CUVMPT)
 
-4.祈求  
+4. 祈求  
 祈求就是在祷告中抓住并信靠神的应许,把自己所需所愿的向神明, 寻求他的成就和赐福。
 + [马太福音 7:7~11](https://www.biblegateway.com/quicksearch/?quicksearch=太7.7-11&qs_version=CUVMPT)
 
