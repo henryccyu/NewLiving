@@ -2,5 +2,5 @@
 [Lesson 2: 新生活与读经](Lesson2.html)  
 [Lesson 3: 新生活与祷告](Lesson3.html)  
 [Lesson 4: 新生活与灵修](Lesson4.html)  
-[Lesson 5: 新生活与灵修](Lesson5.html)  
+[Lesson 5: 新生活与相交](Lesson5.html)  
 [Lesson 6: 新生活与传福音](Lesson6.html)  
