@@ -1,7 +1,7 @@
 # 新生活与相交
 背诵经文：
-+ [罗马书 12:4,5](https://www.biblegateway.com/passage/?search=罗马书12:4-5&version=CUVMPS)
-+ [罗马书 12:1](https://www.biblegateway.com/passage/?search=罗马书12:1&version=CUVMPS)
++ 正如我们一个身子上有好些肢体，肢体也不都是一样的用处；我们这许多人在基督里成为一身，互相联络做肢体，也是如此。(罗马书 12:4,5)
++ 所以弟兄们，我以神的慈悲劝你们，将身体献上，当做活祭，是圣洁的，是神所喜悦的，你们如此侍奉乃是理所当然的。(罗马书 12:1)
 
 基督徒所说的相交与世人所讲的交往是不同的。基督徒的相交开始于耶稣基督的十字架。在十字架上，那叫人与神隔绝的罪的墙壁已经被拆除了，借此，信徒恢复了与神的垂直相交；又因主耶稣基督成了教会的头，开始了信徒与信徒之间的水平相交。
 
@@ -15,11 +15,12 @@
 
 1．借着崇拜与神相交
 
-很多人以为到教会参加礼拜，仅仅是为了听讲道或尽一些义务。实际上教会存在的最终目的是为了荣耀神的名。崇拜就是众信徒一起将荣耀和颂赞归给神，以此表达我们对神的信靠和顺服。我们都应当借着崇拜与神相交。
+时候将到，如今就是了，那真正拜父的，要用心灵和诚实拜他，因为父要这样的人拜他。 24 神是个[a]灵，所以拜他的必须用心灵和诚实拜他。
 
-“我在亲近我的人中要显为▁▁▁▁；在众民面前，我要得▁▁▁▁。 ([利10:3](https://www.biblegateway.com/quicksearch/?quicksearch=利10:3&qs_version=CUVMPT))  
-"时候将到，如今就是了，那▁▁▁▁拜父的，要用▁▁▁▁和▁▁▁▁拜他，因为父要这样的人拜祂。神是个▁▁▁▁，所以拜祂的，必须用▁▁▁▁和▁▁▁▁拜祂。” ([约4:23-24](https://www.biblegateway.com/quicksearch/?quicksearch=约4:23-24&qs_version=CUVMPT))  
-"所以弟兄们，我以神的慈悲劝你们，将▁▁▁▁献上，当作▁▁▁▁，是▁▁▁▁的，是▁▁▁▁的，你们如此事奉，乃是理所当然的。” ([罗12:1](https://www.biblegateway.com/passage/?search=罗马书12:1&version=CUVMPS))
+很多人以为到教会参加礼拜，仅仅是为了听讲道或尽一些义务。实际上教会存在的最终目的是为了荣耀神的名。崇拜就是众信徒一起将荣耀和颂赞归给神，以此表达我们对神的信靠和顺服。我们都应当借着崇拜与神相交。
++ “我在亲近我的人中要显为***圣***，在众民面前我要得***荣耀***。”(利10:3)
++ "时候将到，如今就是了，那***真正***拜父的，要用***心灵***和***诚实***拜他，因为父要这样的人拜祂。神是个***灵***，所以拜祂的，必须用***心灵***和***诚实***拜祂。” (约4:23-24)  
++ "所以弟兄们，我以神的慈悲劝你们，将***身体***献上，当作***活祭***，是***圣洁***的，是***神所喜悦***的，你们如此事奉，乃是理所当然的。” (罗12:1)
 
 >参加崇拜的注意事项  
 第一，参加崇拜不迟到，也不提前离开。  
@@ -31,22 +32,21 @@
 第七，礼拜结束后，主动热情地同初来聚会者问候、交谈、分享。
 
 2．借着赞美与神相交
-
-"主耶和华啊，你是我所▁▁▁▁的，从我年幼，你是我所▁▁▁▁的。我从出母胎被你扶持，使我出母腹的是你。我必常常▁▁▁▁你。 ([诗71:5,6](https://www.biblegateway.com/quicksearch/?quicksearch=诗71:5-6&qs_version=CUVMPT))  
-“我们应当靠着耶稣，常常以▁▁▁▁为祭献给神，这就是那承认主名之人▁▁▁▁的果子。 ([来13:15](https://www.biblegateway.com/quicksearch/?quicksearch=来13:15&qs_version=CUVMPT))
++ "主耶和华啊，你是我所***盼望***的，从我年幼，你是我所***倚靠***的。我从出母胎被你扶持，使我出母腹的是你。我必常常***赞美***你。 (诗71:5,6)  
+“我们应当靠着耶稣，常常以***颂赞***为祭献给神，这就是那承认主名之人***嘴唇***的果子。 (来13:15)
 
 (1) 赞美的方式： (请查考相关的经文和内容)  
-+ [诗103:1-5](https://www.biblegateway.com/quicksearch/?quicksearch=诗103:1-5&qs_version=CUVMPT) —— 以敬虔感恩的心来赞美神  
-+ [路19:37](https://www.biblegateway.com/quicksearch/?quicksearch=路19:37&qs_version=CUVMPT) —— 以欢乐和大声来赞美神  
-+ [诗149:3](https://www.biblegateway.com/quicksearch/?quicksearch=诗149:3&qs_version=CUVMPT) —— 用跳舞、击鼓和弹琴来赞美神  
-+ [诗47:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗47:1&qs_version=CUVMPT) —— 用拍手、夸胜的声音来赞美神  
++ [诗103:1-5](https://www.biblegateway.com/quicksearch/?quicksearch=诗103:1-5&qs_version=CUVMPS) —— 以敬虔感恩的心来赞美神  
++ [路19:37](https://www.biblegateway.com/quicksearch/?quicksearch=路19:37&qs_version=CUVMPS) —— 以欢乐和大声来赞美神  
++ [诗149:3](https://www.biblegateway.com/quicksearch/?quicksearch=诗149:3&qs_version=CUVMPS) —— 用跳舞、击鼓和弹琴来赞美神  
++ [诗47:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗47:1&qs_version=CUVMPS) —— 用拍手、夸胜的声音来赞美神  
 
 (2) 赞美的地点  
-+ [出15:1](https://www.biblegateway.com/quicksearch/?quicksearch=出15:1&qs_version=CUVMPT)  
-+ [赛42:11](https://www.biblegateway.com/quicksearch/?quicksearch=赛42:11&qs_version=CUVMPT)  
-+ [诗150:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗150:1&qs_version=CUVMPT)  
-+ [徒16:23-27](https://www.biblegateway.com/quicksearch/?quicksearch=徒16:23-27&qs_version=CUVMPT)  
-+ [来2:12](https://www.biblegateway.com/quicksearch/?quicksearch=来2:12&qs_version=CUVMPT)
++ [出15:1](https://www.biblegateway.com/quicksearch/?quicksearch=出15:1&qs_version=CUVMPS)  
++ [赛42:11](https://www.biblegateway.com/quicksearch/?quicksearch=赛42:11&qs_version=CUVMPS)  
++ [诗150:1](https://www.biblegateway.com/quicksearch/?quicksearch=诗150:1&qs_version=CUVMPS)  
++ [徒16:23-27](https://www.biblegateway.com/quicksearch/?quicksearch=徒16:23-27&qs_version=CUVMPS)  
++ [来2:12](https://www.biblegateway.com/quicksearch/?quicksearch=来2:12&qs_version=CUVMPS)
 
 参考：圣所、山顶、海边、监狱、会中等。
 
@@ -56,7 +56,7 @@
 
 《圣经》是神启示给人类的话语。借着《圣经》，神对我们每个人说话，阐明祂的旨意，因而，我们可以借着《圣经》的话语与神相交，明白顺服神的旨意。
 
-“你的▁▁▁▁在我上膛何等▁▁▁▁，在我口中比蜜▁▁▁▁。” ([诗119:103](https://www.biblegateway.com/quicksearch/?quicksearch=诗119:103&qs_version=CUVMPT))  
+“你的▁▁▁▁在我上膛何等▁▁▁▁，在我口中比蜜▁▁▁▁。” ([诗119:103](https://www.biblegateway.com/quicksearch/?quicksearch=诗119:103&qs_version=CUVMPS))  
 (1) 我是否每天通过灵修来与神相交？  
 (2) 我是否预备了讲道记录本子？  
 (3) 我是否正背诵背经卡的经文？
@@ -67,7 +67,7 @@
 
 祷告是和神亲密的交谈，也是属灵的呼吸。祷告并不是一件容易的事情。即使再累再忙，也一定要抽出时间来祷告，与全能的神相交，因为祷告是解决所有问题的金钥匙。
 
-“次日▁▁▁▁，天未亮的时候，耶稣起来，到▁▁▁▁地方去，在那里▁▁▁▁。” ([可1:35](https://www.biblegateway.com/quicksearch/?quicksearch=可1:35&qs_version=CUVMPT))
+“次日▁▁▁▁，天未亮的时候，耶稣起来，到▁▁▁▁地方去，在那里▁▁▁▁。” ([可1:35](https://www.biblegateway.com/quicksearch/?quicksearch=可1:35&qs_version=CUVMPS))
 
 ### 二、圣徒之间的相交
 我们蒙神的恩典，借着耶稣基督在十字架上所流的宝血，罪得到了赦免，成为神的儿女和天国的子民。既同为天国子民，圣徒之间就当彼此相交，这样才能互相勉励，彼此服侍，建立起真正的基督身体 —— 教会，荣耀我们在天上的父神。那么，圣徒之间怎样才能建立正确而良好的相交关系呢？
@@ -75,33 +75,33 @@
 1．要彼此相爱  
 “爱人如己”是律法的总纲，也是主耶稣给我们的最大教训。所以，我们应当离弃自我为中心的思考方式，要知道主耶稣在十字架上流宝血，是为了我，也为了其他更多的人，所以要记住：别人同自己一样，也是重要的存在。
 
-“我赐给你们一条新命令，乃是叫你们▁▁▁▁；我怎样▁▁▁▁你们，你们也要怎样▁▁▁▁。你们若有▁▁▁▁的心，众人因此就认出你们是我的▁▁▁▁了。” ([约13:34,35](https://www.biblegateway.com/quicksearch/?quicksearch=约13:34-35&qs_version=CUVMPT))
+“我赐给你们一条新命令，乃是叫你们▁▁▁▁；我怎样▁▁▁▁你们，你们也要怎样▁▁▁▁。你们若有▁▁▁▁的心，众人因此就认出你们是我的▁▁▁▁了。” ([约13:34,35](https://www.biblegateway.com/quicksearch/?quicksearch=约13:34-35&qs_version=CUVMPS))
 
-“小子们啊，我们相爱，不要只在▁▁▁▁和▁▁▁▁上，总要在▁▁▁▁和▁▁▁▁上。” ([约壹3:18](https://www.biblegateway.com/quicksearch/?quicksearch=约壹3:18&qs_version=CUVMPT))
+“小子们啊，我们相爱，不要只在▁▁▁▁和▁▁▁▁上，总要在▁▁▁▁和▁▁▁▁上。” ([约壹3:18](https://www.biblegateway.com/quicksearch/?quicksearch=约壹3:18&qs_version=CUVMPS))
 
 2．要有肢体意识
 
 (1) 在基督里互相联络作肢体
 
-“我们这许多人，在基督里成为▁▁▁▁，▁▁▁▁作▁▁▁▁，也是如此。” ([罗12:5](https://www.biblegateway.com/quicksearch/?quicksearch=罗12:5&qs_version=CUVMPT))
+“我们这许多人，在基督里成为▁▁▁▁，▁▁▁▁作▁▁▁▁，也是如此。” ([罗12:5](https://www.biblegateway.com/quicksearch/?quicksearch=罗12:5&qs_version=CUVMPS))
 
 基督是教会的头，我们是他的身体。不是因为各个分散的个体聚集在个团体里，才说是教会，而是当我们决志信主时，就已自然融为基督身体不可分割的一部分，成为教会的一分子。
 
 (2) 各肢体应在基督里成为一身  
 撒但为分裂基督的身体总是千方百计地攻击我们。因此，教会肢体之间应彼此联络，同心合意成为一体，败坏撒但的作为，而取得属灵争战的胜利。就如圣父、圣子、圣灵合而为一，我们也要在基督里合而为一。
 
-“圣父啊，求你因你所赐给我的名▁▁▁▁他们，叫他们▁▁▁▁，像▁▁▁▁一样。” ([约17:11](https://www.biblegateway.com/quicksearch/?quicksearch=约17:11&qs_version=CUVMPT))
+“圣父啊，求你因你所赐给我的名▁▁▁▁他们，叫他们▁▁▁▁，像▁▁▁▁一样。” ([约17:11](https://www.biblegateway.com/quicksearch/?quicksearch=约17:11&qs_version=CUVMPS))
 
 3．要彼此包容  
 
 (1) 我们要时刻记着，每个人都有长处，也有短处。所以要彼此发掘对方的长处，宽容对方的短处，并且要为对方的软弱祈求神的帮助，也要为对方的长处，常常感谢神。
 
-“为什么看见你弟兄眼中有▁▁▁▁，却不想自己眼中有▁▁▁▁呢？” （[太7:3](https://www.biblegateway.com/quicksearch/?quicksearch=太7:3&qs_version=CUVMPT))
+“为什么看见你弟兄眼中有▁▁▁▁，却不想自己眼中有▁▁▁▁呢？” （[太7:3](https://www.biblegateway.com/quicksearch/?quicksearch=太7:3&qs_version=CUVMPS))
 
 (2) 互相比较，互相论断不是《圣经》的教导。要知道每个人的恩赐和灵命光景都是不一样的，只有互相理解，彼此包容时，才能有良好的相交。联络和搭配，才能建立起基督完美的身体。
 
-“我们各人蒙恩，都是照基督所▁▁▁▁各人的▁▁▁▁。” ([弗4:7](https://www.biblegateway.com/quicksearch/?quicksearch=弗4:7&qs_version=CUVMPT))  
-“信心软弱的，你们要▁▁▁▁，但不要辩论所疑惑的事。...因为神已经▁▁▁▁他了。” ([罗14:1,3](https://www.biblegateway.com/quicksearch/?quicksearch=罗14:1，3&qs_version=CUVMPT))
+“我们各人蒙恩，都是照基督所▁▁▁▁各人的▁▁▁▁。” ([弗4:7](https://www.biblegateway.com/quicksearch/?quicksearch=弗4:7&qs_version=CUVMPS))  
+“信心软弱的，你们要▁▁▁▁，但不要辩论所疑惑的事。...因为神已经▁▁▁▁他了。” ([罗14:1,3](https://www.biblegateway.com/quicksearch/?quicksearch=罗14:1，3&qs_version=CUVMPS))
 
 (3) 应先了解每个人的教育程度、性格修养、文化背景、风俗习惯等均存差异，这样在基督里才能彼此容纳，彼此代祷，这就是基督的爱，也是神向我们所定的旨意。
 
@@ -109,12 +109,12 @@
 
 主耶稣基督为了把全人类从罪恶中拯救出来，离开天上荣耀的宝座，降卑虚己，来到人间，给我们作了服侍的榜样。我们应该效法耶稣，放下架子，存心谦卑，热心服侍别人。
 
-“正如▁▁▁▁来，不是要受人的▁▁▁▁，乃是要▁▁▁▁，并且要舍命，作多人的▁▁▁▁。” （[太20:28](https://www.biblegateway.com/quicksearch/?quicksearch=太20:28&qs_version=CUVMPT))
-“我是你们的▁▁▁▁，你们的▁▁▁▁，尚且洗你们的▁▁▁▁，你们也当彼此▁▁▁▁，我给你们作了▁▁▁▁，叫你们▁▁▁▁我向你们所作的去▁▁▁▁。” ([约13:14，15](https://www.biblegateway.com/quicksearch/?quicksearch=约13:14-15&qs_version=CUVMPT))
+“正如▁▁▁▁来，不是要受人的▁▁▁▁，乃是要▁▁▁▁，并且要舍命，作多人的▁▁▁▁。” （[太20:28](https://www.biblegateway.com/quicksearch/?quicksearch=太20:28&qs_version=CUVMPS))
+“我是你们的▁▁▁▁，你们的▁▁▁▁，尚且洗你们的▁▁▁▁，你们也当彼此▁▁▁▁，我给你们作了▁▁▁▁，叫你们▁▁▁▁我向你们所作的去▁▁▁▁。” ([约13:14，15](https://www.biblegateway.com/quicksearch/?quicksearch=约13:14-15&qs_version=CUVMPS))
 
 5．要互相建立
 
-"所以，你们该彼此▁▁▁▁，互相▁▁▁▁，正如你们素常所行的。” ([帖前5:11](https://www.biblegateway.com/quicksearch/?quicksearch=帖前5:11&qs_version=CUVMPT))
+"所以，你们该彼此▁▁▁▁，互相▁▁▁▁，正如你们素常所行的。” ([帖前5:11](https://www.biblegateway.com/quicksearch/?quicksearch=帖前5:11&qs_version=CUVMPS))
 
 圣徒之间彼此劝勉，督责和服侍是非常重要的，只有以神的话语为根基，互相帮助，互相服侍，一同长进，这样才能造就教会。若神儿女之间互不理睬，冷淡相待，甚至如对敌人般地彼此仇视的话，世人就必要嘲笑我们，主的名也因此而蒙受羞辱。
 
@@ -126,19 +126,19 @@
 
 离弃悲观否定的、挑剔批评的思考方式，建立积极肯定的、富有创造性的思考方式。
 
-"我并不是因缺乏说这话，我无论在什么景况下都可▁▁▁▁，这是我已经学会了。我知道怎样处▁▁▁▁，也知道怎样处▁▁▁▁，或▁▁▁▁、或▁▁▁▁、或▁▁▁▁、或▁▁▁▁，随事随在，我都得了秘诀。我靠着那加给我▁▁▁▁，▁▁▁▁都能作。” （[腓4:11-13](https://www.biblegateway.com/quicksearch/?quicksearch=腓4:11-13&qs_version=CUVMPT))
+"我并不是因缺乏说这话，我无论在什么景况下都可▁▁▁▁，这是我已经学会了。我知道怎样处▁▁▁▁，也知道怎样处▁▁▁▁，或▁▁▁▁、或▁▁▁▁、或▁▁▁▁、或▁▁▁▁，随事随在，我都得了秘诀。我靠着那加给我▁▁▁▁，▁▁▁▁都能作。” （[腓4:11-13](https://www.biblegateway.com/quicksearch/?quicksearch=腓4:11-13&qs_version=CUVMPS))
 
 2．谦虚顺服的生活态度
 
 离弃傲慢的态度，代之以谦卑的态度；离弃以自我为中心的态度，代之以顺服神的态度；脱掉假冒伪善的外衣，表示你真诚的态度。
 
-“凡事不可▁▁▁▁，不可贪图▁▁▁▁，只要存心▁▁▁▁，各人看别人比自己▁▁▁▁。各人不要单顾▁▁▁▁，也要顾▁▁▁▁。你们当以▁▁▁▁为心。他本有神的形像，不以自己与神同等为▁▁▁▁的，反倒虚己，取了▁▁▁▁的形像，成为人的样式。” ([腓2:3-7](https://www.biblegateway.com/quicksearch/?quicksearch=腓2:3-7&qs_version=CUVMPT))
+“凡事不可▁▁▁▁，不可贪图▁▁▁▁，只要存心▁▁▁▁，各人看别人比自己▁▁▁▁。各人不要单顾▁▁▁▁，也要顾▁▁▁▁。你们当以▁▁▁▁为心。他本有神的形像，不以自己与神同等为▁▁▁▁的，反倒虚己，取了▁▁▁▁的形像，成为人的样式。” ([腓2:3-7](https://www.biblegateway.com/quicksearch/?quicksearch=腓2:3-7&qs_version=CUVMPS))
 
 3．恒久的忍耐，热心的作工
 
 不再随自己的情绪，勉强地来做主的事工；也不要因为环境的变化，失去为主作工的热心。从现在起，要积极热心地恒切为主做工。
 
-“务要▁▁▁▁，无论▁▁▁▁，总要▁▁▁▁，并用百般的▁▁▁▁，各样的▁▁▁▁，责备人、警戒人、劝勉人。” ([提后4:2](https://www.biblegateway.com/quicksearch/?quicksearch=提后4:2&qs_version=CUVMPT))
+“务要***传道***，无论***得时不得时***，总要***专心***，并用百般的***忍耐***，各样的***教训***，责备人、警戒人、劝勉人。” (提后4:2)
 
 ## 应用
 
@@ -153,3 +153,4 @@
 ## 实践
 
 请参考112页，附录(一)
+
