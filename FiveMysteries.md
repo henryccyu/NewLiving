@@ -1,5 +1,6 @@
 ---
 permalink: FiveMysteries.html
+title: 新生命 — 五大奥秘
 ---
 # 新生命 — 五大奥秘
 
