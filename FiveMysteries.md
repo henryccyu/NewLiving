@@ -1,6 +1,7 @@
 ---
 permalink: FiveMysteries.html
 ---
+# 新生命 — 五大奥秘
 
 ## 神  
 1) 創造真神
