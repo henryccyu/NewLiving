@@ -4,4 +4,5 @@
 [四 新生活与灵修](Lesson4.html)  
 [五 新生活与相交](Lesson5.html)  
 [六 新生活与传福音](Lesson6.html)  
-[七 新生活与家庭生活](Lesson6.html)  
+[七 新生活与家庭生活](Lesson7.html)  
+[八 新生活与社会生活](Lesson8.html)  
