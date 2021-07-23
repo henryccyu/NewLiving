@@ -3,4 +3,4 @@ title: 新生活
 github:
   is_project_page: false
 
-theme: jekyll-theme-minimal
+remote_theme: jekyll-theme-cayman
