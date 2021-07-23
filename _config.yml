@@ -1,3 +1,6 @@
 title: 新生活
 
-remote_theme: pages-themes/cayman
+github:
+  is_project_page: true
+
+theme: jekyll-theme-cayman
