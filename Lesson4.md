@@ -16,7 +16,7 @@ permalink: /Lesson4.html
 灵修按字面是“修养灵性”的意思。灵修就是专门预备一个安静的时间，用读经和祷告来与神相交，这是在灵里体验与神同在的一段时间，它可以说是我们和神一对一的属灵的交通。
 
 1．主耶稣的榜样  
-(1) 一天当中，主耶稣为哪一些事情而忙碌？([太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
+(1) 一天当中，主耶稣为哪一些事情而忙碌？(耶稣走遍加利利，在各会堂里教训人，传天国的福音，医治百姓各样的病症。[太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
 (2) 主耶稣在繁忙中仍重视什么？  
 + "耶稣却退到旷野去**祷告**。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
 + “散了众人以后，祂就独自上山去**祷告**。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
