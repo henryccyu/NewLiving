@@ -18,14 +18,14 @@ permalink: /Lesson4.html
 1．主耶稣的榜样  
 (1) 一天当中，主耶稣为哪一些事情而忙碌？([太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
 (2) 主耶稣在繁忙中仍重视什么？  
-+ "耶稣却退到旷野去▁▁▁▁。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
-+ “散了众人以后，祂就独自上山去▁▁▁▁。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
++ "耶稣却退到旷野去**祷告**。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
++ “散了众人以后，祂就独自上山去**祷告**。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
 
 我每天为哪些事情而忙碌？请按顺序写出来。  
 
 2．大卫的模范  
-+ “求你使我▁▁▁▁得听你慈爱之言，因我倚靠你;求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
-+ “耶和华啊，▁▁▁▁你必听我的声音；▁▁▁▁我必向你陈明我的心意，并要警醒。” ([诗53](https://www.biblegateway.com/passage/?search=诗53&version=CUVMPS))  
++ “求你使我**清晨**得听你慈爱之言，因我倚靠你；求你使我知道当行的路，因我的心仰望你。”([诗143:8](https://www.biblegateway.com/passage/?search=诗143:8&version=CUVMPS))  
++ “耶和华啊，**早晨**你必听我的声音；**早晨**我必向你陈明我的心意，并要警醒。” ([诗5:3](https://www.biblegateway.com/passage/?search=诗5.3&version=CUVMPS))  
 
 大卫能够成为合神心意的人，并被神大大使用，成就了神的旨意，其重要的原因之一就是他与神保持着很深的相交。  
 大卫的灵修生活与我的灵修生活相比较，我有什么不足的地方呢？
