@@ -16,7 +16,8 @@ permalink: /Lesson4.html
 灵修按字面是“修养灵性”的意思。灵修就是专门预备一个安静的时间，用读经和祷告来与神相交，这是在灵里体验与神同在的一段时间，它可以说是我们和神一对一的属灵的交通。
 
 1．主耶稣的榜样  
-(1) 一天当中，主耶稣为哪一些事情而忙碌？(耶稣走遍加利利，在各会堂里教训人，传天国的福音，医治百姓各样的病症。[太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
+(1) 一天当中，主耶稣为哪一些事情而忙碌？
++ 耶稣走遍加利利，在各会堂里教训人，传天国的福音，医治百姓各样的病症。([太4:23](https://www.biblegateway.com/passage/?search=太4:23&version=CUVMPS))  
 (2) 主耶稣在繁忙中仍重视什么？  
 + "耶稣却退到旷野去**祷告**。”([路5:16](https://www.biblegateway.com/passage/?search=路5:16&version=CUVMPS))  
 + “散了众人以后，祂就独自上山去**祷告**。” ([太14:23](https://www.biblegateway.com/passage/?search=太14:23&version=CUVMPS))  
@@ -28,16 +29,17 @@ permalink: /Lesson4.html
 + “耶和华啊，**早晨**你必听我的声音；**早晨**我必向你陈明我的心意，并要警醒。” ([诗5:3](https://www.biblegateway.com/passage/?search=诗5.3&version=CUVMPS))  
 
 大卫能够成为合神心意的人，并被神大大使用，成就了神的旨意，其重要的原因之一就是他与神保持着很深的相交。  
+
 大卫的灵修生活与我的灵修生活相比较，我有什么不足的地方呢？
 
 二、灵修的目的  
 1．特别来亲近神，与神交往  
-+ “我趁天未亮▁▁▁▁，我▁▁▁▁了你的言语;我趁夜更未換，将眼睁开，为要▁▁▁▁你的话语。”([诗119:147,148](https://www.biblegateway.com/passage/?search=诗119:147-148&version=CUVMPS))  
-+ “耶和华啊，你与我▁▁▁▁，你一切的命令尽都真实。”([诗119:151](https://www.biblegateway.com/passage/?search=诗119:151&version=CUVMPS))
++ "我趁天未亮**呼求**，我**仰望**了你的言语。我趁夜更未换，将眼睁开，为要**思想**你的话语。”([诗119:147,148](https://www.biblegateway.com/passage/?search=诗119:147-148&version=CUVMPS))  
++ “耶和华啊，你与我**相近**，你一切的命令尽都真实。”([诗119:151](https://www.biblegateway.com/passage/?search=诗119:151&version=CUVMPS))
 
 2．特别到神面前来支取能力，并得到主的引导  
-+ “因为出于▁▁▁▁，没有一句不带能力的。”([路1:37](https://www.biblegateway.com/passage/?search=路1:37&version=CUVMPS))  
-+ “你的▁▁▁▁是我脚前的灯，是我路上的光。”([诗119:105](https://www.biblegateway.com/passage/?search=诗119:105&version=CUVMPS))
++ “因为出于**神的话**，没有一句不带能力的。”([路1:37](https://www.biblegateway.com/passage/?search=路1:37&version=CUVMPS))  
++ “你的**话**是我脚前的灯，是我路上的光。”([诗119:105](https://www.biblegateway.com/passage/?search=诗119:105&version=CUVMPS))
 
 3．特别到神面前来，使心意得到更新，渐渐活出基督的样式  
 + “我们众人既然敞着脸得以▁▁▁▁主的荣光，好像从镜子里返照，就变成主的▁▁▁▁，荣上加荣，如同从主的灵变成的。” ([林后3:18](https://www.biblegateway.com/passage/?search=林后3:18&version=CUVMPS))
