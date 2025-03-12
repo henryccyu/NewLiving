@@ -7,3 +7,5 @@
 [七 新生活与家庭生活](Lesson7.html)  
 [八 新生活与社会生活](Lesson8.html)  
 [九 新生活与管家生活](Lesson9.html)  
+[十 新生活与明白神的旨意](Lesson10.html)  
+[十一 新生活与属灵的得胜](Lesson11.html)  
