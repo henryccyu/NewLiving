@@ -1,6 +1,3 @@
----
-permalink: /Lesson3.html
----
 # 新生活与祷告
 
 背诵经文：
