@@ -1,7 +1,3 @@
----
-permalink: /Lesson4.html
----
-
 # 新生活与灵修
 背诵经文：
 + 耶和华啊，早晨你必听我的声音；早晨我必向你陈明我的心意，并要警醒。([诗篇5:3](https://www.biblegateway.com/passage/?search=诗篇5:3&version=CUVMPS))
