@@ -1,6 +1,3 @@
----
-permalink: /Lesson1.html
----
 # 基督徒的新生活
 
 背誦經文：
