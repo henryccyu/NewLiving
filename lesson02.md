@@ -1,6 +1,3 @@
----
-permalink: /Lesson2.html
----
 # 新生活与读经
 
 背诵经文:
